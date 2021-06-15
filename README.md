@@ -20,6 +20,5 @@ We Already Listing On Zilswap.io
 
 Join Us :
 https://twitter.com/TeslaZil
-https://github.com/TeslaTokenZil/TeslaToken
-https://www.linkedin.com/in/tesla-token
+
 
