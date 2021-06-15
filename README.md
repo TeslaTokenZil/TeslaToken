@@ -18,3 +18,8 @@ We Already Listing On Zilswap.io
 9. Enter Amount
 10. Tap Swap and confirm
 
+Join Us :
+https://twitter.com/TeslaZil
+https://github.com/TeslaTokenZil/TeslaToken
+https://www.linkedin.com/in/tesla-token
+
